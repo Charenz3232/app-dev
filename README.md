@@ -28,7 +28,7 @@ I like Naruto because it teaches important lessons about life.
 
 For me, Naruto teaches us that even if life is difficult, we should continue working hard and never lose hope.
 
-## Conclusion
+
 Naruto is more than just an anime series. It teaches friendship, courage, determination, and the importance of believing in yourself.
 
 ---
